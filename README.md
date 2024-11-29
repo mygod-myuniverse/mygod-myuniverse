@@ -6,7 +6,7 @@
 
 pls sign ata perhaps
 
-[rentry](https://rentry.co/copqohbv) [old strawpage](https://l1teralegend.straw.page/) [ata](https://l1teral4gend.atabook.org/) [retrospring](https://retrospring.net/@sakurae_)
+[old stinky rentry](https://rentry.co/96k39r8p) [old strawpage](https://l1teralegend.straw.page/) [ata](https://l1teral4gend.atabook.org/) [retrospring](https://retrospring.net/@sakurae_)
 
 <!-- end -->
 
