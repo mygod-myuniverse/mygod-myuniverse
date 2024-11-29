@@ -6,7 +6,7 @@
 
 pls sign rs
 
-[rentry](https://rentry.co/copqohbv) [old strawpage](https://l1teralegend.straw.page/)
+--> [rentry](https://rentry.co/copqohbv) [old strawpage](https://l1teralegend.straw.page/) [ata](https://l1teral4gend.atabook.org/) <--
 
 <!-- end -->
 
