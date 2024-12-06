@@ -8,5 +8,10 @@ pls sign ata perhaps
 
 [old stinky rentry](https://rentry.co/96k39r8p) [old strawpage](https://l1teralegend.straw.page/) [ata](https://l1teral4gend.atabook.org/) [retrospring](https://retrospring.net/@sakurae_)
 
+
+HELL YEAH GANG... forty nine.. fifty one.. m
+![HELL YEAH GANG](![image](https://github.com/user-attachments/assets/de168100-8088-40ac-a7a3-2ccbe938f9f5)
+
+
 <!-- end -->
 
