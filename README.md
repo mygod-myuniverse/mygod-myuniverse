@@ -10,8 +10,7 @@ pls sign ata perhaps
 
 
 HELL YEAH GANG... forty nine.. fifty one.. m
-[(https://github.com/user-attachments/assets/de168100-8088-40ac-a7a3-2ccbe938f9f5)]
-
+(![image](https://github.com/user-attachments/assets/de168100-8088-40ac-a7a3-2ccbe938f9f5))
 
 <!-- end -->
 
