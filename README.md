@@ -14,5 +14,7 @@ HELL YEAH GANG... forty nine.. fifty one.. m
 
 ![image](https://github.com/user-attachments/assets/de168100-8088-40ac-a7a3-2ccbe938f9f5)
 
+emariyaoi.. idk if u know this but u r my idol 
+
 <!-- end -->
 
