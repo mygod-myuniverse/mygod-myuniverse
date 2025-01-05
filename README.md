@@ -2,7 +2,7 @@
 
 $\color{#e3c1c5}{\textbf{"but you haven't seen my girl}}$
 
-![image](https://github.com/user-attachments/assets/700cf747-3735-4949-b794-31cb12ad8099)
+![image](https://64.media.tumblr.com/43e53585c38b3fa3822cc6aa22d04703/804c384ce78cdc7c-ca/s500x750/bb05ca10b05a045d8838f083c1e11fbc68b019cd.gifv)
 
 .
 .
