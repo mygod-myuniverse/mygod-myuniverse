@@ -18,7 +18,7 @@ $\color{#e3c1c5}{\textbf{"from the moment humanity left the universe, we all for
 $\color{#e0a8ae}{\textbf{"but if belief in god is human"}}$
 
 <p align="center">
-![image](https://github.com/user-attachments/assets/16e79ed2-2c5e-472e-be4b-253a76e8b2d7)
+<![image](https://github.com/user-attachments/assets/16e79ed2-2c5e-472e-be4b-253a76e8b2d7)>
 
 <p align="center">
 $\color{#e798b2}{\textbf{"if all i can do as a human is to believe"}}$
