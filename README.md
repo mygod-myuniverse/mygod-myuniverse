@@ -1,6 +1,16 @@
 <!-- skibidi -->
 
-## tonight the music feels so loud
+$\color{#e3c1c5}{\textbf{"but you haven't seen my girl}}$
+
+![image](https://github.com/user-attachments/assets/700cf747-3735-4949-b794-31cb12ad8099)
+
+.
+.
+.
+.
+.
+.
+
 
 ![oh my gyatt](https://64.media.tumblr.com/64773343ab35228f03dde1352077d819/90a5d36e0c2b671a-8d/s1280x1920/2b6d8b468b5ce017aa720b208b4c5f2cb9e5c86b.gifv)
 
