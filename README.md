@@ -1,5 +1,12 @@
 <!-- skibidi -->
 
+$\color{#ffe8ed}{\textbf{┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★}}$
 $\color{#e3c1c5}{\textbf{"from the moment humanity left the universe, we all forgot god"}}$
 
 ![image](https://github.com/user-attachments/assets/040559b1-68d1-4e1b-8bf9-8dc3e01725e2)
@@ -17,6 +24,9 @@ $\color{#cba3ce}{\textbf{"my god"}}$
 ![image](https://github.com/user-attachments/assets/44194baf-bc8b-4289-9ff9-01cc30844a07)
 
 $\color{#a893ba}{\textbf{"my universe"}}$
+
+$\color{#ffe8ed}{\textbf{. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁. ₊ ⊹ . ₊˖ . ₊}}$
+
 
 
 <!-- end -->
