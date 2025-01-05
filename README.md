@@ -7,6 +7,7 @@ $\color{#ffe8ed}{\textbf{┊         ┊       ┊   ┊    ┊        ┊
 ┊ ◦
 ★⋆      ┊ .  ˚
            ˚★}}$
+           
 $\color{#e3c1c5}{\textbf{"from the moment humanity left the universe, we all forgot god"}}$
 
 ![image](https://github.com/user-attachments/assets/040559b1-68d1-4e1b-8bf9-8dc3e01725e2)
