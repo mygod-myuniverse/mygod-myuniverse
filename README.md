@@ -3,7 +3,7 @@
 <img src="the wife.png" alt="me and wife">
 
 <p align="center">
-$\color{#e3c1c5}[me and wife](github.com/mygod-myuniverse)$
+%#edb8b8%[me](https://github.com/mygod-myuniverse)%%                  %#edb8b8%[wife](https://github.com/your-reader)%%
 
 
 
