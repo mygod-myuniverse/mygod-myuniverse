@@ -11,6 +11,9 @@ $\color{#ca959d}{\textbf{que me, me deslumbras, me derrumbas}}$
 <p align="center">
 $\color{#ca959d}{\textbf{me}}$ $\color{#9895ca}{\textbf{and da}}$ $\color{#8f7dad}{\textbf{wife}}$
 
+<p align="center">
+$\color{#cde9ea}{\textbf{ISNT SHE SO CUTIE PATOOTIE!!!}}$ 
+
 <div align="center">
 
 [da wife link](https://github.com/your-reader)
