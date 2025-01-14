@@ -8,7 +8,7 @@ $\color{#ca959d}{\textbf{que me, me deslumbras, me derrumbas}}$
 <img src="the wife.png" alt="me and wife">
 
 <p align="center">
-![wife](https://github.com/your-reader)
+%#8ba7cb%[shen](https://github.com/SleepingSquid)%%
 
 <!-- end -->
 
