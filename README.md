@@ -20,7 +20,7 @@ $\color{#cde9ea}{\textbf{ISNT SHE SO CUTIE PATOOTIE!!!}}$
 
 
 
-<img src="that dude.jpg" alt="THAT DUDE">
+<img src="that dude.png" alt="THAT DUDE">
 
 <!-- end -->
 
