@@ -18,5 +18,7 @@ $\color{#cde9ea}{\textbf{ISNT SHE SO CUTIE PATOOTIE!!!}}$
 
 [da wife link](https://github.com/your-reader)
 
+<img src="that dude.jpg" alt="THAT DUDE">
+
 <!-- end -->
 
